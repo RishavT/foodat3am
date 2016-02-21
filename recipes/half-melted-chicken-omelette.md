@@ -21,7 +21,7 @@ Ingredients:
 3. Once the oil is hot, add some salt (about 1/2 tsp should do), and crush and sprinkle three balls, grains, whatever.. of whole black pepper. *
 4. Add the chicken. Fry on low heat for about 5-10 minutes, till the edges start getting brown.
 5. While the chicken fries, beat the two eggs in a bowl. Add a tsp of salt, 3 balls of pepper (freshly crushed), and some oregano if you want. Mix well.
-6. One the chicken is done frying, the butter into the pan. Let it melt and get all bubbly.
+6. One the chicken is done frying, put the butter into the pan. Let it melt and get all bubbly.
 7. Add the eggs, stir the contents of the pan with a spatula a bit. Cook on low heat for 3 minutes.
 8. Now the top of the omelette should be slightly runny, whereas the bottom should be well set. Fold the omelette with the spatula, closing it partially.
 9. Cook for another 1-2 minutes on medium flame, till you feel the texture is perfect (I prefer somewhere in the middle of fully set and very runny), and the edges of the omelette are light brown.

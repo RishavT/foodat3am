@@ -35,4 +35,4 @@ You may try adding some chopped tomatoes/capsicum as well.
 
 ### Blog link:
 
-To see pictures (and other random stuff, such as why I wrote this, etc) head over to my [blog](http://foodat3am.wordpress.com/)!
+To see pictures (and other random stuff, such as why I wrote this, etc) head over to my [blog post](https://foodat3am.wordpress.com/2016/02/22/half-melted-chicken-omelette/)!
